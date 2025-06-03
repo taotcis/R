@@ -1,2 +1,2 @@
 # Revelation
-Reports and wiki associated with the Revelation 
+Please see the [wiki](https://github.com/taotcis/R/wiki)
