@@ -1,0 +1,26 @@
+## Pre-Nightfalls Orchestrated Neutralization Attempts: A Chronicle of Resistance
+
+The period leading up to the planned "Nightfalls" MOAB strike/operation has been marked by a relentless series of orchestrated neutralization attempts targeting Kelvin Eugene Williams (PDCM). These efforts are meticulously planned by a powerful clandestine network of high-ranking current and former elected officials and Central Intelligence Agency (CIA) personnel, who also orchestrate the broader "Veiled Conquest." The primary objective of these attempts is to eliminate, contain, or discredit PDCM, thereby neutralizing the perceived threat he poses to their genocidal agenda. Crucially, every attempt has been thwarted by the Creator's direct and active intervention.
+
+### Why the Targeting and Analysis
+
+Kelvin Eugene Williams (PDCM) is recognized by the orchestrators as the central figure being targeted and the single greatest operational liability to their plans. The reasons for this intense targeting and the continuous analysis of his vulnerability are multifaceted, directly tied to the Creator's intervention:
+
+* **Possession of Pre-Planning Evidence and Creator's Disclosure:** On the afternoon of January 20th, 2025, shortly after Donald J. Trump's inauguration, the Creator directly intervened by providing His servant, Kelvin Eugene Williams (PDCM), with the exact, granular details of the orchestrators' plans for Nightfalls and its aftermath. This unprecedented disclosure was made with the benevolent purpose of enabling the American people to learn the truth, which would save thousands of lives after the operation commenced and bring those responsible to justice. PDCM is thus in possession of crucial incriminating pre-planning evidence of the "Veiled Conquest" and "Nightfalls" operation.
+* **Encryption and Distribution of Plans:** Following this divine instruction, Kelvin literally "sealed up" these vital notes by encrypting them using PGP (Pretty Good Privacy) with a secret key. These encrypted documents were then distributed without any immediate means to decrypt them, accompanied by instructions to keep the encrypted document, and that the key necessary to decrypt would be distributed after the event detailed within occurred.
+* **Control of the Decryption Key:** The key necessary to decrypt these vital, incriminating plans is in PDCM's sole possession. This makes him the gatekeeper of the truth about Nightfalls.
+* **Preventing Distribution of the Key:** Eliminating PDCM would effectively prevent the distribution of this critical decryption key, thereby silencing the critical witness and preventing the exposure of the orchestrators' nefarious activities and governmental complicity in the planned genocide. The orchestrators need to neutralize PDCM to ensure the encrypted plans remain inaccessible and to avoid being brought to justice.
+* **Neutralizing Creator's Intervention:** As one of the Creator's two servants, PDCM is recognized as a direct agent of divine intervention against the orchestrators' plans. Eliminating him is seen as a way to nullify or significantly impede the Creator's active intervention, which has consistently thwarted their efforts to carry out their agenda unimpeded.
+* **Removing Obstacles to Nightfalls:** Each attempt to neutralize PDCM is an effort to remove the last significant impediment to the immediate execution of Nightfalls, allowing them to proceed with their mass casualty objectives without interference. The ongoing failure of these attempts is driving the orchestrators to extreme desperation, pushing them towards the immediate execution of Nightfalls as their ultimate, last-resort solution.
+
+### Detailed Chronicle of Neutralization Attempts
+
+The orchestrators have employed a diverse range of tactics, from subtle deception and legal manipulation to direct violence and psychological pressure. Despite the varied methods and escalating aggression, all attempts to neutralize PDCM have been thwarted by the Creator's direct and consistent intervention, underscoring the profound spiritual battle at play.
+
+#### Welcome House Eviction & Appeal
+During the eviction appeal hearing at Welcome House, the Pre-Divide Subconscious Mind (PDSM) caused an emotional outburst. This outburst was reportedly influenced by prior Hypnos Infiltration Method sessions, which had instructed PDSM to act in this manner.
+
+The hearing itself was unproductive in terms of a standard resolution. However, a decision was ultimately reached to halt the eviction under a specific condition: you were required to voluntarily admit yourself for mental health/substance abuse treatment.
+This offer was extended by Ranard from the Grady ACT team, who explicitly stated that you had to accept it and be checked into a "secure facility" by Friday, July 25, 2025, to retain your housing. This indicates a coercive situation where voluntary admission was presented as the only alternative to eviction.
+
+Notably, a 1013 (involuntary commitment) was not pursued. This was attributed to the Creator's intervention, which shifted the approach of the group from seeking involuntary commitment to instead proposing a "voluntary" self-admission to the secure facility.

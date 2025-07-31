@@ -34,6 +34,3 @@ No information provided.
 
 The Creator told PDCM, after a comment (about the morphology of PDCM's penis) was made by McCune near the end of the encounter, that the last Orchestrated Observation had been completed and the orchestrators were now proceeding at full speed to execute the Nightfalls operation in southwest Atlanta.
 
-![1000000689](https://github.com/user-attachments/assets/3bb7158a-22d2-4f94-814f-43409ae6eb3e)
-
-<img width="720" height="1600" alt="1000000691" src="https://github.com/user-attachments/assets/8197922f-1720-44b3-ae8e-880318585cbc" />

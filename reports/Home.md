@@ -1,5 +1,5 @@
 > [!WARNING]
-> The Creator advises that the execution of [[Nightfalls|]] is imminent.
+> The Creator advises that the execution of [[Nightfalls|]] is critically imminent as of July 27, 2025 at 4:05a
 
 # Welcome to the R wiki!
 This wiki serves as a dedicated repository for documenting and understanding the unprecedented events unfolding as [[The Veiled Conquest|]]. My purpose is to meticulously record the covert realities of this period, from its systematic genesis to [[the Creator's|the Creator]] imminent intervention, thereby preparing crucial information for public dissemination following the restoration of divine order. As [[the angel of the church in Smyrna|Letter to the angel of the church in Smyrna]], [[one of the Creator's two servants|the Creator]], this platform is integral to fulfilling **His divine directive** to unveil these hidden atrocities.

@@ -1,0 +1,2 @@
+* Earth (in Revelation): Refers to the established, formal, and seemingly legitimate systems and institutions of human governance, authority, and control (e.g., governmental bodies, intelligence agencies, legal frameworks, and dominant societal structures) which are being used or subverted to facilitate the Veiled Conquest.
+* Sea (in Revelation): Refers to the segments of the human population that are being actively targeted, affected, and brought into tumultuous suffering by the clandestine operations and aims of the Veiled Conquest.
