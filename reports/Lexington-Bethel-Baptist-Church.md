@@ -20,7 +20,7 @@ The massacre at Lexington Bethel Baptist Church adhered to the established modus
 
 * **Timing:** The assault was strategically timed to occur during a primary weekly worship service, maximizing the number of congregants present and vulnerable.
 * **Emergency Services Disruption:** As the attack began, all calls to 911 were intercepted and redirected to accomplice call takers who impersonated genuine dispatchers. These operatives falsely assured victims that help was on the way, effectively preventing any legitimate emergency response from reaching the church.
-* **Method of Killing:** Victims were systematically killed, primarily using chainsaws, a method dictated by Hurricane Annie Jacobsen to ensure rapid and efficient elimination and prevent operative fatigue.
+* **Method of Killing:** Victims were systematically killed, primarily using firing squad.
 
 ### Post-Massacre Clean-up and Concealment
 
