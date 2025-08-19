@@ -1,20 +1,3 @@
-### Introduction to the Trumpets as a Divine Anchor
-The "Trumpets" in the Book of Revelation serve as a **Divine Anchor** for Donald J. Trump, who is identified as the God of heaven. A Divine Anchor is a literal, often subtle connection between a prophecy and its real-world fulfillment, intended to confirm its authenticity to those with insight. In this context, the specific details of the trumpet prophecies are not coincidental; they are divinely intended markers that point to a pre-planned, divinely orchestrated sequence of events. Each of the trumpet events was authorized by Donald J. Trump himself.
-
-### Premise of Revelation
-The premise of the Book of Revelation, within this fulfillment scenario, is the Creator's rare and direct intervention to halt **The Veiled Conquest**.
-
-**The Veiled Conquest** is a covert and systematic campaign of elimination targeting specific demographic groups in the United States. Initiated by a clandestine orchestrating network in 2023, its goals are to reduce these populations, consolidate power, and fundamentally reshape the societal landscape.
-
-### Contextual Definitions for the Book of Revelation
-* **God:** The term "God the Father" is used definitively to refer to the Creator. All other uses of "God" within the fulfillment scenarios are context-based.
-* **The Setting:** The setting of the fulfillment of Revelation is the modern-day United States, specifically centered in the metro Atlanta area from 2017 onward.
-* **Heaven:** This term encompasses the more affluent and opulent areas, such as Buckhead and Midtown in Atlanta, along with national power centers like Washington, D.C. Its demographic is primarily Caucasian.
-* **Earth:** This term encompasses the opposite of Heaven, representing areas with a predominantly minority demographic, primarily Black and Brown.
-* **Hell:** This term is used specifically to define the state of the West End neighborhood and southwest Atlanta *after* the execution of Nightfalls.
-
-***
-
 ### First Trumpet
 **Biblical Passage and citation (KJV):**
 * Revelation 8:7: "The first angel sounded, and there followed hail and fire mingled with blood, and they were cast upon the earth: and the third part of trees was burnt up, and all green grass was burnt up."
@@ -103,3 +86,21 @@ The premise of the Book of Revelation, within this fulfillment scenario, is the 
 
 **Details:**
 * The fulfillment for the Seventh Trumpet has not yet been provided.
+
+***
+
+### The "Trumpets" are a Divine Anchor
+The "Trumpets" in the Book of Revelation serve as a **Divine Anchor** for Donald J. Trump, who is identified as the God of heaven. A Divine Anchor is a literal, often subtle connection between a prophecy and its real-world fulfillment, intended to confirm its authenticity to those with insight. In this context, the specific details of the trumpet prophecies are not coincidental; they are divinely intended markers that point to a pre-planned, divinely orchestrated sequence of events. Each of the trumpet events was authorized by Donald J. Trump himself.
+
+### Premise of Revelation
+The premise of the Book of Revelation, within this fulfillment scenario, is the Creator's rare and direct intervention to halt **The Veiled Conquest**.
+
+**The Veiled Conquest** is a covert and systematic campaign of elimination targeting specific demographic groups in the United States. Initiated by a clandestine orchestrating network in 2023, its goals are to reduce these populations, consolidate power, and fundamentally reshape the societal landscape.
+
+### Contextual Definitions for the Book of Revelation
+* **God:** The term "God the Father" is used definitively to refer to the Creator. All other uses of "God" within the fulfillment scenarios are context-based.
+* **The Setting:** The setting of the fulfillment of Revelation is the modern-day United States, specifically centered in the metro Atlanta area from 2017 onward.
+* **Heaven:** This term encompasses the more affluent and opulent areas, such as Buckhead and Midtown in Atlanta, along with national power centers like Washington, D.C. Its demographic is primarily Caucasian.
+* **Earth:** This term encompasses the opposite of Heaven, representing areas with a predominantly minority demographic, primarily Black and Brown.
+* **Hell:** This term is used specifically to define the state of the West End neighborhood and southwest Atlanta *after* the execution of Nightfalls.
+
