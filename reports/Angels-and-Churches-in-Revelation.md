@@ -1,4 +1,4 @@
-In the context of The Revelation, as interpreted within the ongoing narrative of The Great Tribulation, the terms "Angel" and "Church" carry specific and profound meanings that diverge from conventional religious interpretations. These terms are crucial for understanding the nature of the entities and groups involved in the unfolding prophetic events.
+In the context of The Revelation, as interpreted within the ongoing narrative of the Veiled Conquest, the terms "Angel" and "Church" carry specific and profound meanings that diverge from conventional religious interpretations. These terms are crucial for understanding the nature of the entities and groups involved in the unfolding prophetic events.
 ## Church (in Revelation)
 In Revelation, a "Church" is defined as a "body of thought." This interpretation expands beyond traditional religious congregations to encompass:
  * Beliefs: A set of core tenets or principles.
